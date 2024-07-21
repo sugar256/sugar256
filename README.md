@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mugisha Reagan
+- 👀 I’m interested in data analysis and business analysis
+- 🌱 I’m currently learning a lot about business
+- 💞️ I’m looking to collaborate on business projects
+- 📫 How to reach me  whatsApp (+256)779-625376 and email me at reaganm172@gmail.com
+- ⚡ Fun fact: I like Animes and Manga
